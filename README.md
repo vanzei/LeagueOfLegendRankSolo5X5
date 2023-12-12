@@ -1,0 +1,1 @@
+# LeagueOfLegendRankSolo5X5
